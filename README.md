@@ -6,3 +6,7 @@
 
 • Presented suggestions to increase revenue and generate productive website traffic
 
+https://datastudio.google.com/reporting/1esyrwZMH_pQNQxw-OImpOFvbIodQhM7D/page/ltKv
+
+![](google_DS.png)
+
